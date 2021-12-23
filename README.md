@@ -1,4 +1,4 @@
-on that oscp grind \n
+on that oscp grind  
 insta: @jeanjon_
 
 <!---
