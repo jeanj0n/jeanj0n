@@ -1,5 +1,4 @@
-on that oscp grind  
-insta: @jeanjon_
+wanted to tune a 95 miata when i was a kid but here we are
 
 <!---
 jeanj0n/jeanj0n is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
